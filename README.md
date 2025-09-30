@@ -1,2 +1,0 @@
-# tugas-tilda
-untuk nugas
